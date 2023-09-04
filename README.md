@@ -6,3 +6,6 @@
 
 dafne.grade@escola.pr.gov.br
 insta: dafne_gradee
+
+
+![image](https://github.com/dafnegrade/d/assets/144032526/053e0308-8600-4b99-bbc4-1bbed349e8f3)
