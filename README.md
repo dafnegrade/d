@@ -2,6 +2,7 @@
   ### Amo pizza de brócolis e bacon, e de chocolate branco com morango.
 
   🐮 😻 🍫 💟 🍓
+  
 Entrem em contato **comigo** por aqui ⏬
 
 dafne.grade@escola.pr.gov.br
